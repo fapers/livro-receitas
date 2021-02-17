@@ -20,4 +20,3 @@
 4. Está pronto para servir.
 
 Montes claros, 17 de fevereiro de 2021. Por: Fábio Pereira de Souza.
-
